@@ -13,4 +13,4 @@ Collaboration
 I'm always open to collaboration and eager to work with others who share a passion for data-driven decision-making. Feel free to reach out if you're interested in collaborating on projects or exchanging ideas.
 
 Connect With Me
-LinkedIn: 
+LinkedIn: https://www.linkedin.com/in/aditya-bobade-a604432b1
